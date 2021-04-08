@@ -2,7 +2,7 @@
 
 ### Myself Dibyanshu Anand 😀
 
-### I am a passionate developer and student from India
+### I am a passionate developer and student from India 👨‍💻 👨‍🎓
 ##
 
 ### ⚡ Quick Facts about Me
