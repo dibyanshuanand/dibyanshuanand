@@ -41,7 +41,7 @@
 
 ##
 
-### ❤️ Lets connect
+### ❤️ Let's connect
 
 <div align="center">
 <a href="https://github.com/dibyanshuanand" target="_blank">
